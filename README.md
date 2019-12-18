@@ -1,1 +1,0 @@
-# wesleydpedro.github.io
